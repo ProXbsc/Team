@@ -2,7 +2,7 @@
 Team - Our team members
 
 
-MEET THE TEAM:
+MEET THE TEAM: (Pictures on website)
 
 Nart - 
 Founder - 
