@@ -6,7 +6,7 @@ MEET THE TEAM: (Pictures on website)
 
 Nart - 
 Founder - 
-https://twitter.com/nart92
+https://twitter.com/Nart_Crypto
 
 Mario - 
 Spokesman - 
